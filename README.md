@@ -1,2 +1,0 @@
-# Qualifications
-Talented engineer with a solid electronics background and strong understanding of networking fundamentals. Highly proficient in Linux, Python, SQL, Machine Learning and Google Cloud Platform. Superior interpersonal skills, able to build effective relationships with a highly diverse international customer base. Excellent communication skills with demonstrated success in the areas of technical writing, installation and customer support.  Available for non-sponsored Brazilian employment, fluent in Portuguese.
